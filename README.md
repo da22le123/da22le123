@@ -1,5 +1,6 @@
 
-![anime](https://github.com/user-attachments/assets/0c939b7a-0e51-4c1d-a695-f2be4c6c8eaf)
+![gif](https://github.com/user-attachments/assets/f8b4084d-8289-4610-a46c-ff7c9b48816f)
+
 
 <!--
 **da22le123/da22le123** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
