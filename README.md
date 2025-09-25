@@ -1,4 +1,4 @@
-![gif](https://github.com/user-attachments/assets/7ea46c0f-bcaa-49df-806d-75b2fec44d4b)
+![smoke](https://github.com/user-attachments/assets/7078127d-31e1-4f31-89b4-877f82e1af77)
 
 
 <!--
