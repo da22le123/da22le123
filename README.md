@@ -1,5 +1,4 @@
-
-![gif](https://github.com/user-attachments/assets/f8b4084d-8289-4610-a46c-ff7c9b48816f)
+![gif](https://github.com/user-attachments/assets/7ea46c0f-bcaa-49df-806d-75b2fec44d4b)
 
 
 <!--
