@@ -1,4 +1,5 @@
-![smoke](https://github.com/user-attachments/assets/7078127d-31e1-4f31-89b4-877f82e1af77)
+![smoke 1](https://github.com/user-attachments/assets/c021a1e0-5042-4c74-915c-f4fdf0b27734)
+
 
 
 <!--
